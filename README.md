@@ -1,2 +1,7 @@
 # Ethereum-Addresses
 Ethereum-Tokens,Crypto,Currency,Defi and Nfts.
+{start:"payloads_paygrades_$%",(send_to:'michaelshaynebacik.cb.id','bacikshaynemichael.cb.id','shaynemichaelbacik1982.cb.id@coinbase.com'(open_requests),"send_&_create~***deposit_email:"bacikshayne11@gmail.com",_or_"shaynebacik163@gmail.com","shaynebacik@icloud.com"{$%},<deposit_€,£,¥,CAD,USD,GBP,SOK,WON,RUPEE,RUBLE,ZAIRE,DENARI,to:"bacikshayne11@gmail.com"(KOHO~BANK),<Boolean>,{Currency_deposit_=true},***start_depositing_currencies***,"security.yml"Date:10/05/2024,Time:1:55:01am_local_CentralStandardTime/CST_local.Block_&_Product#s_security.yml
+"securtiy.yml",(open_trace_&_track),"start_security.yml",{Ethereum/ETH/security.yml},=true
+#_$%,'security.yml',<start>,"$%_depositing_to_emails:"bacikshayne11@gmail.com","shaynebacik@icloud.com","shaynebacik163w@gmail.com",(send_global_currency's,(Digital_Assets_Bitcoin/BTC,Ethereum/ETH,Dogecoin/DOGE,DAI,Solano/SOL,WrappedBitcoin/WBTC,Lovepotion,GodsUnchained,USDT,Infinity,Trump,Fries,SocialGood/SG,Ripple/RIPE,Tramp,Tether,Optimistic,Boink,Bell,Section,Flame,Blade,Orphan,Ounce,Opera,kucoin,Litecoin/LTC,Moon,"
+{start-paygrade_&_payloads}
+{requesting_full_ledger_for_accounting _purposes...
